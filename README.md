@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Nilesh Kumar Thakur
+- From Buxar , Bihar
+- 🌱 I’m currently pursuing Btech from Kalinga Institute Of Industrial Technology(KIIT) ,Bhubneshwar.
+- 👀 I’m interested in learning new things
+- 📫 You may reach me 9341933908 or email:- nileshkumar154295@gmail.com
